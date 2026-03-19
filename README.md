@@ -21,3 +21,4 @@ By using our Google Chrome Extensions, you signify your consent and agreement to
 ## Feedback
 
 If you have questions or concerns about this Privacy Policy, you can contact me by [email](mailto:toti@athlostravel.com).
+
